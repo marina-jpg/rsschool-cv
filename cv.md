@@ -7,7 +7,7 @@ Belarus, Mogilev, 37
 
 
 
-![фото](https://avatarko.ru/img/avatar/15/devushka_14372.jpg "maryna mikhasiova") 
+![фото](https://avatarko.ru/img/avatar/15/devushka_14372.jpg "maryna mikhasiova") ](https://user-images.githubusercontent.com/124706815/221493304-25dcbab5-7b92-4af1-81d0-556d15165e9c.jpeg)
 
 
 ## **WEB DEVELOPER**
