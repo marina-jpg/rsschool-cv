@@ -7,3 +7,4 @@ https://github.com/marina-jpg/rsschool-cv/assets/124706815/f718bf56-6558-4731-b8
 https://github.com/marina-jpg/rsschool-cv/assets/124706815/45a71a53-6a50-4ce7-a3ef-b2f6a078493f
 (https://github.com/marina-jpg/rsschool-cv/assets/124706815/aa5abb64-37e3-493e-ad72-36f736391d46
 https://github.com/marina-jpg/rsschool-cv/assets/124706815/dfed12b7-5876-4dd2-864b-9c1c4eee9cba
+https://github.com/marina-jpg/rsschool-cv/assets/124706815/b1beeaa2-9eac-46e9-b134-21ed425f145b
