@@ -8,3 +8,5 @@ https://github.com/marina-jpg/rsschool-cv/assets/124706815/45a71a53-6a50-4ce7-a3
 (https://github.com/marina-jpg/rsschool-cv/assets/124706815/aa5abb64-37e3-493e-ad72-36f736391d46
 https://github.com/marina-jpg/rsschool-cv/assets/124706815/dfed12b7-5876-4dd2-864b-9c1c4eee9cba
 https://github.com/marina-jpg/rsschool-cv/assets/124706815/b1beeaa2-9eac-46e9-b134-21ed425f145b
+![me](https://github.com/marina-jpg/rsschool-cv/assets/124706815/d2d06b79-3e37-4e1d-9316-5fbcb1768e28)
+https://github.com/marina-jpg/rsschool-cv/assets/124706815/4519b99d-fd77-489b-99de-4c3eb89058da
