@@ -11,7 +11,17 @@ https://github.com/marina-jpg/rsschool-cv/assets/124706815/dfed12b7-5876-4dd2-86
 https://github.com/marina-jpg/rsschool-cv/assets/124706815/b1beeaa2-9eac-46e9-b134-21ed425f145b
 ![me](https://github.com/marina-jpg/rsschool-cv/assets/124706815/d2d06b79-3e37-4e1d-9316-5fbcb1768e28)
 https://github.com/marina-jpg/rsschool-cv/assets/124706815/4519b99d-fd77-489b-99de-4c3eb89058da
+
+![Slice 2 (5) 1 (1)](https://github.com/marina-jpg/rsschool-cv/assets/124706815/d4d66444-6b97-4457-9d07-d4dace958a3c)
+![Slice 1 (13) 1 (2)](https://github.com/marina-jpg/rsschool-cv/assets/124706815/0677c68e-fea5-4191-a866-f9eee441fe0e)
+
+![Slice 1 (13) 1 (1)](https://github.com/marina-jpg/rsschool-cv/assets/124706815/c31bd834-dfa4-4c35-95dd-f6495fcf8989)
+
 https://github.com/marina-jpg/rsschool-cv/assets/124706815/e510fdfc-ab34-4cef-879f-6702044b0e81
+![Slice 2 (4) 1 (1)](https://github.com/marina-jpg/rsschool-cv/assets/124706815/7a8a4902-4d53-4e16-ac89-289092089167)
+
+![Slice 2 (3) 1 (2)](https://github.com/marina-jpg/rsschool-cv/assets/124706815/7f8c4a37-5c58-4c94-aeed-60cb23050ea7)
+
 https://drive.google.com/drive/folders/1OG-BhvYQ-P6NJXKQ1EdRbnFwi3RkDoj5
 ![HEAD pointer](https://github.com/marina-jpg/rsschool-cv/assets/124706815/3fca2b5a-1cf1-4727-854d-4be0c3a0e612)
 
