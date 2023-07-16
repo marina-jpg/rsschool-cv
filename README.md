@@ -11,3 +11,4 @@ https://github.com/marina-jpg/rsschool-cv/assets/124706815/b1beeaa2-9eac-46e9-b1
 ![me](https://github.com/marina-jpg/rsschool-cv/assets/124706815/d2d06b79-3e37-4e1d-9316-5fbcb1768e28)
 https://github.com/marina-jpg/rsschool-cv/assets/124706815/4519b99d-fd77-489b-99de-4c3eb89058da
 https://github.com/marina-jpg/rsschool-cv/assets/124706815/e510fdfc-ab34-4cef-879f-6702044b0e81
+https://drive.google.com/drive/folders/1OG-BhvYQ-P6NJXKQ1EdRbnFwi3RkDoj5
