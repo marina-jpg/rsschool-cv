@@ -1,3 +1,4 @@
+![Slice 2 (3)](https://github.com/marina-jpg/rsschool-cv/assets/124706815/2ed098bc-f266-4ec9-abd5-d742ed480cc6)
 https://marina-jpg.github.io/rsschool-cv/cv
 
 https://www.figma.com/file/M1pJVe6K2rDgLgoSnw1jEk/1.-Digital-artist-design-(draft)-(Copy)?node-id=0-1&t=9uBJYT2mVL9tFu0o-0
@@ -12,3 +13,7 @@ https://github.com/marina-jpg/rsschool-cv/assets/124706815/b1beeaa2-9eac-46e9-b1
 https://github.com/marina-jpg/rsschool-cv/assets/124706815/4519b99d-fd77-489b-99de-4c3eb89058da
 https://github.com/marina-jpg/rsschool-cv/assets/124706815/e510fdfc-ab34-4cef-879f-6702044b0e81
 https://drive.google.com/drive/folders/1OG-BhvYQ-P6NJXKQ1EdRbnFwi3RkDoj5
+![Slice 1 (13)](https://github.com/marina-jpg/rsschool-cv/assets/124706815/9a6f0329-d10b-407c-8752-34e7636ecca5)
+
+![Uploading Slice 2 (5).png…]()
+![Uploading Slice 2 (4).png…]()
