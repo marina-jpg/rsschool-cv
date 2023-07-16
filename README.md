@@ -17,3 +17,4 @@ https://drive.google.com/drive/folders/1OG-BhvYQ-P6NJXKQ1EdRbnFwi3RkDoj5
 
 ![Uploading Slice 2 (5).png…]()
 ![Uploading Slice 2 (4).png…]()
+![200](https://github.com/marina-jpg/rsschool-cv/assets/124706815/0e5a8bc0-fb17-4019-b869-564187eda9c4)
