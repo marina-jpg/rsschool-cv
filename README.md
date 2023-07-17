@@ -1,3 +1,10 @@
+
+![Slice 4 (1)](https://github.com/marina-jpg/rsschool-cv/assets/124706815/45468632-10d2-4492-8720-432d9e4c7ad6)
+
+
+![Slice 3 (3)](https://github.com/marina-jpg/rsschool-cv/assets/124706815/8ab0cc90-b742-430b-9d1d-2dee553b5897)
+
+
 ![Slice 2 (3)](https://github.com/marina-jpg/rsschool-cv/assets/124706815/2ed098bc-f266-4ec9-abd5-d742ed480cc6)
 https://marina-jpg.github.io/rsschool-cv/cv
 
